@@ -72,3 +72,31 @@ Xeria was silent for a moment. Then, “And your father knows this.”
 “And you?” she asked.
 
 Thane closed his eyes. “I’m trying to work out what can still be saved.”
+
+“Xeria,” Thane said quietly, sinking deeper until the water brushed his ears, “I know you’re not just my attendant. So answer me this.” He exhaled, the steam blurring his vision as his thoughts churned. “If we’ve already lost… who, and what, can we still save?”
+
+Xeria didn’t hesitate. “Servants are sent south every winter,” she said. “The cold can be brutal, and we routinely dispatch retinues to merchants and allied houses closer to the heartlands on Stonehome business.”
+
+Thane stilled. It was a thread. Not salvation, but something to hold. “Those routes are already mapped,” he said, sitting up slightly and meeting her gaze.
+
+Her amber eyes remained steady. “They are, young master. Inns, rest points, contacts. No one would question an expanded rotation. The winter has been harsh, after all.”
+
+“That could work,” Thane murmured. “It would look like prudence, not flight.” The shape of a plan began to form, fragile but real. “But it leaves the house thinner. Less defended. Less staffed.”
+
+Xeria inclined her head. “Then some of your brothers should be sent away as well. On missions. Or to pursue higher learning. [[House Stonehome]] is known to be… sedentary.” There was a faint emphasis there. “Framed correctly, it would ease the burden on the household rather than raise concern.”
+
+Thane let the thought settle, then followed it through to its natural conclusion. “If servants can be sent south without question, then heirs can be sent outward,” he said. “Not away. Forward.” He glanced at Xeria. “[[Bastion]].”
+
+She nodded almost immediately.
+
+“Javik and Trello,” Thane continued, already measuring the shape of it. “Javik needs pressure and real opposition, not another winter sparring in a courtyard. And Trello…” He hesitated only a fraction of a second. “Trello will be listened to there. He has presence.”
+
+“Two reasons, then,” Xeria said. “Training, and representation.”
+
+“And absence,” Thane added quietly. “If unrest follows, no one questions heirs being sent to the frontier’s edge to harden them. It looks responsible. Traditional, even.”
+
+Xeria inclined her head. “It will also thin the household without making it appear deliberate.”
+
+Thane closed his eyes for a moment, committing to it. “They leave before the first heavy snowfall.”
+
+After that day the days passed quickly.
