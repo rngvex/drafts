@@ -5,6 +5,38 @@ The clinking of metal filled the front yard of the Stonehome estate once more. T
 For long stretches, the clash of steel was all that existed. The training was well above the basics, fit for nobility and punishing all the same. Thane focused on footwork and posture, knowing a single lapse would put him on the ground in seconds.
 
 Then she changed pace. Threnbow lunged, closing the distance with her guard still intact. Thane braced and shifted his weight, preparing to block or deflect, but after an hour of relentless pressure his response came a fraction too slow.
+The strike landed hard. Hard enough to buckle Thane’s knees, but not enough to drop him. For a heartbeat they were locked together, steel pressed to steel, Trish grinning openly as she leaned into the bind.
+“Running out of steam, Thane?” she teased, flexing as she tried to force him down.
+It was the tone that got to him.
+Was he not giving everything he had? Fighting so he might live another day. Fighting so that they all could.
+“Conductive Current Breathing.”
+The words left his mouth before he fully realized he’d spoken them. His lungs burned as he drew the breath in, felt it settle, then circulate. Ambient mana rushed to meet it, threading through muscle and nerve alike. Static snapped from his skin and discharged into the ground as strength flooded back into his limbs.
+He held his ground.
+Trish’s grin widened.
+Thane gritted his teeth. If he was going to do this, he would commit.
+“Lightning Attunement.”
+The world sharpened.
+Movement resolved into intent. Muscle impulses, shifts of balance, the subtle tension that preceded motion, all of it laid bare. Trish’s posture was suddenly obvious, every angle and opening illuminated with painful clarity.
+She broke the deadlock first, dodging back with a laugh, already preparing for what would follow.
+Thane moved.
+The earth cracked beneath his foot as he launched forward, the impact ringing like a thunderclap. His strike drove Trish back several meters despite her guard, boots skidding through dirt as she absorbed the blow.
+She blocked. Barely.
+Thane didn’t stop.
+He drew deeper, this time through his mana core, the charge already forming as it gathered, shaped by instinct rather than incantation. The air thickened, ionized, faintly luminous as power condensed between them.
+Trish inhaled slowly.
+“Swordsmaster’s Spirit Channeling.”
+Her stance shifted, blade extended, body leaning forward as if inviting the attack. The pressure in the courtyard spiked, mana density heavy enough to taste.
+Their eyes met.
+Thane raised his off-hand and released the spell.
+Lightning leapt toward her—
+—and was cut cleanly in half.
+In the same instant she was on him.
+Her hand closed around his face, momentum carrying them both down as she drove him into the ground with bone-jarring force. The breath left his lungs in a sharp, helpless gasp.
+When his vision cleared, Trish was already standing, offering a hand with the same easy grin as before.
+“Good,” she said. “Very good.”
+Thane lay there, staring up at the winter sky, chest burning, heart racing.
+Good wasn’t enough.
+Not yet. 
 
 “You’ve trained well, young lordling,” she said as she eased back. “The progress is visible. Still too weak for the life of a hunter or adventurer, but soon, I think you could pass as C-rank.”
 
@@ -96,7 +128,10 @@ She nodded almost immediately.
 “And absence,” Thane added quietly. “If unrest follows, no one questions heirs being sent to the frontier’s edge to harden them. It looks responsible. Traditional, even.”
 
 Xeria inclined her head. “It will also thin the household without making it appear deliberate.”
-
-Thane closed his eyes for a moment, committing to it. “They leave before the first heavy snowfall.”
-
-After that day the days passed quickly.
+Thane closed his eyes for a moment, then nodded to himself. “They leave before the first snowfall.”
+After that, the days moved quickly. He fulfilled his father’s wishes to the letter. The plan he devised with Xeria worked—at least at first. Servants were sent from the manor in careful stages, dispatched to everywhere and nowhere at once. By the time anyone thought to ask questions, they were already gone.
+From the outside, House Stonehome appeared responsible, even forward-thinking. Two of its lordlings were announced for placement at Bastion Academy, a prudent investment in the future. The rumors spread quietly, carried by the right mouths, reinforced by polite letters and visible restraint. Enough to muddy the narrative. Enough to delay judgment.
+It wasn’t enough.
+Grain shipments arrived late, then not at all. Stores dwindled. Tempers shortened. Winter crept closer, and with it hunger. The pressure on the estate mounted, subtle at first, then impossible to ignore. Those who stood to benefit from Stonehome’s weakness did not rush—but they did not wait, either.
+Whatever Thane had disrupted, they adjusted.
+The trap tightened all the same. 
