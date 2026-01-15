@@ -1,0 +1,9 @@
+# Duty and Sacrefice
+
+The first real cold had settled in, sharp enough to bite through wool and stone alike, and the end of the year loomed close. House Stonehome prepared for the Hearthbound Vigil as it always had, with quiet efficiency and no small measure of tension beneath the surface.
+Carriages arrived throughout the day, wheels crunching over frost-hardened ground as members of the house returned from scattered duties and distant holdings. One by one, they passed beneath the gate and into the keep, bringing with them the low murmur of reunion and the unspoken understanding that, for this night at least, everyone was expected to be present.
+Winter had not yet closed its fist. But it was close. One by one, the heirs of House Stonehome gathered in the courtyard, their arrivals measured and deliberate. Braziers along the perimeter were lit as dusk settled in, flames crackling to life and casting the manor in warm bands of orange and gold. Firelight filled nearly every space, clinging to stone and timber alike, a quiet defiance against the cold pressing in from beyond the walls.
+Ignatius Stonehome was the first to arrive.
+He stepped down from his carriage without hesitation, cloak already unfastened, as if the journey from the High Lords’ court in the Heartlands had been little more than an inconvenience. The first heir carried himself with the ease of someone accustomed to being observed. Long golden-brown hair, a Stonehome trait as unmistakable as their name, fell neatly down his back, and his face bore the same hard lines as their father’s, softened only by time spent far from the frontier.
+He paused briefly, taking in the courtyard, the braziers, the frost gathering at the edges of the stone.
+Then he moved forward, boots ringing against the ground, returning to a house that had never truly stopped being his, no matter how far he had traveled from it.
