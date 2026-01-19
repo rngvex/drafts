@@ -1,4 +1,4 @@
-# Duty and Sacrefice
+# Duty and Sacrifice
 
 The first real cold had settled in, sharp enough to bite through wool and stone alike, and the end of the year loomed close. House Stonehome prepared for the Hearthbound Vigil as it always had, with quiet efficiency and no small measure of tension beneath the surface.
 Carriages arrived throughout the day, wheels crunching over frost-hardened ground as members of the house returned from scattered duties and distant holdings. One by one, they passed beneath the gate and into the keep, bringing with them the low murmur of reunion and the unspoken understanding that, for this night at least, everyone was expected to be present.
