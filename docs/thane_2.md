@@ -1,6 +1,6 @@
 # The Cold Wind Calling
 
-The clinking of metal filled the front yard of the Stonehome estate once more. This time it wasn’t brothers crossing blades, but Thane and his instructor, Trisha Threnbow. At a glance she could have passed for a common adventurer, and that was very much by design. Her slim longsword moved with effortless precision, elegant and economical. She left openings, but never by mistake, each one a lure meant to draw Thane into striking at the wrong moment.
+The clinking of metal filled the front yard of the [[House Stonehome|Stonehome]] estate once more. This time it wasn’t brothers crossing blades, but [[Thane Stonehome|Thane]] and his instructor, Trisha Threnbow. At a glance she could have passed for a common adventurer, and that was very much by design. Her slim longsword moved with effortless precision, elegant and economical. She left openings, but never by mistake, each one a lure meant to draw Thane into striking at the wrong moment.
 
 For long stretches, the clash of steel was all that existed. The training was well above the basics, fit for nobility and punishing all the same. Thane focused on footwork and posture, knowing a single lapse would put him on the ground in seconds.
 
@@ -40,7 +40,7 @@ Not yet.
 
 “You’ve trained well, young lordling,” she said as she eased back. “The progress is visible. Still too weak for the life of a hunter or adventurer, but soon, I think you could pass as C-rank.”
 
-“Thank you, Miss Threnbow,” Thane replied, steadying his breath. Trisha moved in and hauled Thane up from the ground she had so curtly introduced him to. Xeria stood nearby when he regained his footing, taking a moment to orient himself.
+“Thank you, Miss Threnbow,” Thane replied, steadying his breath. Trisha moved in and hauled Thane up from the ground she had so curtly introduced him to. [[Xeria]] stood nearby when he regained his footing, taking a moment to orient himself.
 
 “I’ve been training,” Thane said, catching his breath, “but I see I’m still lacking.”
 

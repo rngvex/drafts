@@ -1,4 +1,4 @@
-It had been a full week since the expedition team had left for the depths of the forest outside Bastion Academy. Thane was already asleep in his cot, and most of the team were drifting toward their tents.
+It had been a full week since the expedition team had left for the depths of the forest outside [[Bastion Academy|Bastion]] Academy. [[Thane Stonehome|Thane]] was already asleep in his cot, and most of the team were drifting toward their tents.
 
 In the center of the campsite sat Izzat, the shadow mage, deliberately keeping watch over the fire. Fire guard was one of those duties people forgot about—or never imagined was important—until it failed. The light and heat kept wild monsters at bay, warding them from the camp, and someone always had to tend it.
 
