@@ -142,3 +142,115 @@ He considered pointing it out. The thought lasted only a moment. It would turn i
 So Ignatius set his mug aside and turned toward the stairs. He knew where Sebik would be, holed up in the upper study where the house went quiet when decisions could no longer be delayed.
 
 If there was still work to be done on a day like this, it meant the situation had already reached last resort.
+
+The upper study smelled of old ink and burned wax.
+Ignatius noticed it immediately, that sharp, familiar scent turned sour by overuse. Candles had been allowed to gutter down to nothing and replaced mid-burn, wax pooled and scraped away without care. The desk had been cleared and buried again, maps layered atop one another in a way that would have offended Sebik on any other night.
+Tonight, nothing was sacred.
+Stonehome intelligence lay exposed. Patrol routes overlapped grain ledgers. Trade roads were inked and re-inked where certainty had eroded. Older military charts, the kind Ignatius remembered from childhood lessons, had been dragged out and pressed into service beside newer, more precise surveys. Pins marked intersections, some pulled free and stabbed back elsewhere, leaving the parchment scarred.
+Sebik stood hunched over the table, both hands braced against the wood as if it were the only thing holding him upright. He looked older than Ignatius remembered, not in years, but in weight. Dark circles sat heavy beneath his eyes, carved by nights that had ended without sleep.
+Thane stood opposite him, posture straight but rigid, shoulders tight with held tension. His hair was uncombed, eyes rimmed red, attention fixed on a manifest he had already read too many times. Ink stained his fingers.
+No one spoke when Ignatius entered.
+They didn’t startle. They didn’t turn.
+They simply made room.
+Ignatius closed the door behind him and stepped forward, eyes sweeping the table once. He did not ask what was happening.
+“What’s the timing?” he asked.
+Sebik exhaled, slow and controlled. “Tonight,” he said. “Or tomorrow morning, at the latest.”
+Ignatius nodded. His gaze followed the inked lines converging toward the estate like veins. “The Vigil,” he said quietly.
+“If I were them,” Sebik replied, “I’d choose it.”
+Everyone present. Tradition binding attendance. A justification ready-made, preventative action, necessary intervention. The kind of moment that ended houses cleanly, with witnesses to sanctify the act.
+Sebik dragged a finger across one of the maps, smearing ink where patrol routes overlapped. “This isn’t posturing,” he said. “Stormbolt isn’t angling for concessions. They mean to end us.”
+Ignatius stilled. “All of us?”
+“Yes,” Sebik said without hesitation.
+Thane looked up then, eyes sharp despite the fatigue. “The timing lines up. Unrest has peaked. Grain hasn’t arrived where it should have. Winter’s pressing early. People are scared, and scared people make noise.”
+“And noise gives justification,” Sebik said. He shifted another marker inward. “Stormbolt forces have been sighted along the southern roads. Not in colors. Not in formation. Hired blades. Caravan guards. Auxiliary levies traveling as merchants.”
+Ignatius studied the markings, jaw tightening. “They’re covering the lands.”
+“They hate this house,” Sebik said quietly. “They always have. And now they have the excuse they’ve been waiting for. When they move, it won’t be a duel. It won’t be a siege. It’ll be a cleansing.”
+The word hung in the air, heavy and ugly.
+“If they strike during the Vigil,” Thane said, already moving the conversation forward, “everyone’s here. Leadership. Bloodline. Witnesses. It looks decisive. Necessary.”
+“And irreversible,” Sebik finished.
+Ignatius exhaled slowly. “Then there is no saving it.”
+“No,” Sebik said. “Only reducing the body count.”
+Thane tapped the edge of the parchment, drawing their attention back. “The wagons,” he said. “If they carry the crest, they become statements. Targets. If Stormbolt decides to interfere, those marks make it easy.”
+“The craftsmanship gives them away regardless,” Sebik said.
+“I know,” Thane replied. “But recognition isn’t the same as targeting. Bandits will notice. Anyone looking for opportunity will. Anyone looking for us won’t.”
+He traced a familiar artery of ink across the map. “Popular roads. This time of year, traffic is thick. Merchant convoys, winter provisioning, pilgrims moving south before the passes close. If Trello and Javik travel with that flow, not ahead of it, not behind it, they disappear into it.”
+“Bandits,” Sebik repeated.
+“Yes,” Thane said. “But not hunters.”
+Ignatius leaned in, studying the intersections. “The western trade roads are saturated,” he said. “Enough movement to drown two more wagons.”
+Sebik looked at him then, really looked, and something in his expression eased. Not hope. Relief.
+“They’ll need escorts that don’t look like escorts,” Sebik said.
+“I’ll arrange it,” Ignatius replied. “Men whose absence won’t raise questions. Paid through intermediaries.”
+Thane nodded once. “The servants go first. The last rotation leaves before dawn. Anyone left after that stays because they chose to.”
+Sebik closed his eyes for a moment. When he opened them again, his gaze was steady. “I should have seen it sooner.”
+“You did,” Thane said quietly. “You just hoped it would be enough.”
+Silence settled, broken only by the distant murmur of voices from below, laughter rising and falling as cups were filled and old stories retold. The Vigil was in full swing.
+Sebik straightened, shoulders squaring with effort. “Then it’s decided,” he said. “Trello and Javik leave under the ceremony. Bastion, by name and by writ. No one questions that.”
+Ignatius nodded. “I’ll see to the roads.”
+Thane slid the manifest across the table. “Take this,” he said. “Burn it when you’re done.”
+Ignatius took the parchment, feeling the weight of it settle into his hands.
+Sebik glanced toward the door. “We should return,” he said. “They’ll be expecting us.”
+
+When Sebik finally left to prepare for the late welcome speech, the study went still.
+For the first time that night, no one was issuing orders.
+Thane crossed the room and nearly collapsed onto the leather couch along the far wall, sinking into it with a weight that felt wrong for someone his age. He let his head fall back against the armrest, forearm draped across his eyes, breathing out slowly, as if the tension had only just remembered it was allowed to leave.
+Ignatius watched him for a moment longer than was polite.
+Then he shut the door.
+“You look like hell,” he said, not unkindly.
+Thane let out a quiet huff. “You should see the ledgers.”
+Ignatius smiled faintly and leaned back against the desk instead of sitting. He always avoided the chairs in this room. Thane remembered that. Something about never getting too comfortable where decisions were made.
+“How are things in the capital?” Thane asked, voice muffled. “Less chaotic than home, I hope.”
+“Aurelian handles most of the tedious work,” Ignatius said. “Cassian makes sure none of it stays quiet. Between the two of them, Stonehome is remembered.”
+He paused. “But yes. Less immediate than this.”
+“Good,” Thane murmured. “Someone should have a normal life.”
+Ignatius snorted softly. “You say that like you ever wanted one.”
+Thane shifted, lowering his arm just enough to look at him. “I wanted time,” he said. “That’s not the same thing.”
+Ignatius considered that, then nodded. “Fair.”
+Silence settled between them, the kind that didn’t need filling. Distant laughter drifted up from below, softened by stone and distance.
+“I know what you’ve been doing,” Thane said eventually. “In the capital. The meetings. The favors. The compromises.”
+He let his arm fall fully now, eyes tired but clear. “It’s not easy carrying a house’s name when everyone’s waiting for you to stumble.”
+Ignatius exhaled slowly. “Someone has to stand where they can see us,” he said. “Someone has to make sure we don’t vanish quietly.”
+Thane’s mouth curved, just barely. “You’ve always been good at being seen.”
+“And you’ve always been good at the parts no one notices until they’re missing,” Ignatius replied.
+The words sat there, honest and unadorned.
+“How many have we saved?” Ignatius asked.
+Thane’s shoulders rose and fell once. “Not nearly enough,” he said. “It’s been like trying to scoop sand into a pile while a gale closes in. Every time I think we’ve stabilized something, the wind shifts.”
+He stared at the ceiling. “I keep thinking there’s one detail I missed. Something small enough to fix.”
+Ignatius shook his head. “If it were small,” he said quietly, “it wouldn’t have needed you.”
+That earned him a look. Brief. Sharp. Appreciative.
+“I’m so tired,” Thane said, almost to himself.
+Ignatius didn’t rush to answer. He straightened his coat instead, smoothing a crease that didn’t need smoothing.
+“You know,” he said, “if circumstances were different, we’d still be up here at dawn. You arguing trade routes. Me pretending not to be impressed.”
+Thane let out a breath that might have been a laugh. “You never pretended very well.”
+“No,” Ignatius agreed. “I really didn’t.”
+For a moment, the study felt like it used to. Not safe, but familiar.
+Then the weight crept back in.
+“When this is over,” Ignatius said quietly, “you don’t get to carry it alone.”
+Thane closed his eyes. “That wasn’t the arrangement.”
+“I know,” Ignatius said. “I’m changing it.”
+They stood there a few seconds longer, two brothers who could have talked all night, if the world had allowed it.
+Sebik Stonehome appeared at the top of the foyer steps just as the murmur of the hall began to swell.
+Conversation ebbed naturally as heads turned, voices lowering without command. The Lord of Stonehome paused there for a moment, framed by the green banners and firelight, letting the room settle on its own. He did not raise a hand for silence. He had never needed to. Years of habit did the work for him.
+Ignatius stood at his right, one step back, posture straight and composed. Thane waited at his left, closer to the banister, hands folded loosely in front of him. The symmetry was not accidental.
+Sebik descended the steps at an unhurried pace, boots striking stone with soft, deliberate steps. He stopped at the base of the stairs, close enough that the first rows of servants and guards stood within arm’s reach, far enough that the rest of the hall could still see him clearly.
+Only then did he speak.
+“Thank you all for attending the fires of the Hearthbound Vigil with us,” he said, voice carrying easily across timber and stone. “I am glad that all of Stonehome’s sons have returned, as have all of you.”
+A ripple of assent moved through the crowd. Some smiled. Others bowed their heads. For many, this was the only night of the year when the house gathered as one, lords and servants alike.
+“This year has not been an easy one,” Sebik continued, taking a few slow steps forward as he spoke, closing the distance between himself and the assembled household. “But it has been a strong one. We endured the frontier as we always have, together, through diligence, through labor, and through loyalty to one another.”
+He gestured lightly with one hand, indicating the hall around them, the banners overhead, the firelight reflecting off polished stone, the people who gave this place its rhythm. “Stonehome stands because you stand. Because you work. Because you remember who you are, even when the cold presses close.”
+There was pride in his voice now, quiet but unmistakable.
+“As is tradition,” he said, turning back toward the steps, “some among us will depart before winter sets its teeth fully into the roads. They go with my blessing and with the house’s trust, to represent us beyond these walls.”
+Trello and Javik stepped forward from the edge of the gathering as if drawn by the words, coming to stand a pace below Sebik. The crowd shifted to make room for them, faces turning, recognition and approval passing easily between neighbors.
+Sebik placed a hand on Trello’s shoulder first, firm and steady. Then he rested his other hand on Javik’s, fingers tightening briefly before settling.
+“Trello and Javik will travel south at first light, bound for Bastion,” he said. “They go not as exile, nor as retreat, but as duty. They carry Stonehome with them, as all our sons do, wherever they stand.”
+Javik straightened instinctively under his father’s hand. Trello inclined his head, solemn and composed.
+A murmur followed, approval and understanding woven together. Bastion was a known quantity. A respectable posting. A sensible one.
+Sebik lifted his mug, the motion mirrored throughout the hall a heartbeat later.
+“To the hearth that binds us,” he said. “To the fire that keeps us whole. May it burn warm through the winter, and may we all return to it when the snow thaws.”
+Mugs were raised. The toast came back louder this time, voices overlapping, filling the hall until it pressed against the walls.
+Along the front of the gathering stood the heads of the outer holdings, millers and reeves and captains of the wall, men and women whose authority was older than titles. They raised their mugs with the rest, expressions sober but steady. 
+Sebik stepped back, releasing Trello and Javik, the formal moment complete. The brothers rejoined the gathering, hands clapped against shoulders, quiet words exchanged as conversation flowed back into place. Someone struck up a tune near the far wall, soft and familiar.
+The Vigil continued.
+As the night wore on, the fires burned lower. Servants moved through the hall to bank the braziers and clear the last of the platters, boots whispering over stone. Voices thinned as people drifted away, guided by memory to rooms they had slept in since childhood.
+Doors closed softly along the upper halls. Footsteps faded. The estate settled.
+By the time the last candles were extinguished, House Stonehome lay wrapped in quiet, secure in the certainty of walls that had always held.
+Above it all, winter waited.
